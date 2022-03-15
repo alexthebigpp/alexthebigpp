@@ -20,5 +20,5 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with ... 拍繩
 - 💬 Ask me about ...anything, but i won't answer you
 - 📫 How to reach me: alex0201507@gmail.com
-- 😄 Pronouns: ***battle helicoptor***
+- 😄 Pronouns: ***battle helicoptor***:helicopter::helicopter::helicopter::helicopter::helicopter::helicopter::helicopter:
 - ⚡ Fun fact: i have 10 fingers
